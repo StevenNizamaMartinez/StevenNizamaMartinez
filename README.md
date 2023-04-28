@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **nizamamartinezs@gmail.com**
 
-- ⚡ Fun fa **I love manga !!!**
+- ⚡ Fun fact **I love manga !!!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
